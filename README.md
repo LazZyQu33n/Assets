@@ -2,7 +2,7 @@
 
 <div align="center">
 
-Welcome To [@HentaiGif](https://github.com/LazZyQu33n/Assets/tree/main/Assets)
+200+ Hentai Gifs Collection [@HentaiGif](https://github.com/NarutoUzumakix/HentaiGif)
 <br>
 
 [![@LazZyQu33n](https://github.com/LazZyQu33n/LazZyQu33n/blob/main/Resources/Logo2.png)](https://github.com/HentaiCollator) 
